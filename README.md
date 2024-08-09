@@ -10,4 +10,5 @@ Você pode entrar em contato comigo 📫
 
 @alurastartestudante bonitinho 💌
 
-![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.bluebus.com.br%2Fpai-do-gif-animado-confirma-todo-mundo-esta-falando-errado-a-pronuncia-e-jif%2F&psig=AOvVaw2FcljFe1UvE5mKYJ6_9n-v&ust=1723319286730000&source=images&cd=vfe&opi=89978449&ved=0CA4QjRxqFwoTCLjb3uPW6IcDFQAAAAAdAAAAABAE)
+![](![dowload](https://github.com/user-attachments/assets/174f8559-2710-4d9a-9627-f75c6caef122)
+)
